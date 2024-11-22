@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @RileyTErickson
-- 👀 I’m interested in ... Robots
-- 🌱 I’m currently learning ... Robotics
-- 💞️ I’m looking to collaborate on ... Robots
-- 📫 How to reach me ... Robots
-- 😄 Pronouns: ... Robot/Robots
-- ⚡ Fun fact: ... Robots are cool.
+- 👋 Hi, I’m THE SUPER NAZI!!!
+- 👀 I’m interested in ... ENDING THE AVENGERS!!!
+- 🌱 I’m currently learning ... ENGLISH!!!
+- 💞️ I’m looking to collaborate on ... CONQUERING THE FREE WORLD!!!!
+- 📫 How to reach me ... COME TO GERMANY!!!
+- 😄 Pronouns: ... He/NAZI!!
+- ⚡ Fun fact: ... I HATE CAPTAIN AMERICA!!!
 
 <!---
 RileyTErickson/RileyTErickson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
